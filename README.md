@@ -16,6 +16,11 @@ Teddy: "I'll have to take you someday"
 
 
 
+[Arnold: When I was first working on your mind, I had a theory of consciousness. I thought it was a pyramid you needed to scale, so I gave you a voice, my voice, to guide you along the way. Memory, improvisation, each step harder to reach than the last. And you never got there. I couldn't understand what was holding you back. Then, one day, I realized I had made a mistake. Consciousness isn't a journey upward, but a journey inward. Not a pyramid, but a maze. Every choice could bring you closer to the center or send you spiraling to the edges, to madness. Do you understand now, Dolores, what the center represents? Whose voice I've been wanting you to hear?](https://www.youtube.com/embed/RRIt9cQdScA?autoplay=1&start=38&end=103)
+
+
+
+
 
 [Angela: Sexy, but not threatening. Accommodating, but not unchallenging. Sweet, but not boring. Smart, but not intimidating.](https://www.youtube.com/embed/3fcjywluW_w?autoplay=1&start=103&end=125)
 
